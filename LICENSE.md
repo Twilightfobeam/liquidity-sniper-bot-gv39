@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with premium liquidity sniper bot | take-profit + rug-pull-detection, the #1 liquidity sniper bot. Includes take-profit and rug-pull-detection for a faster
 
 
 
